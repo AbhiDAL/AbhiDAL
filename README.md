@@ -38,7 +38,7 @@
 
 🌍 Website: dalaiagents.io
 
-📩 Email: abhishek@academyda.com
+📩 Email: abhishek@academydal.com
 
 🐦 Twitter/X: x.com/Digital_ai_Labs
 
